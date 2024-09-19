@@ -1,2 +1,2 @@
 # second-one
-I fucking dont understand shit, just kidding. love it
+I fucking dont understand shit. somuch just kidding. love it
